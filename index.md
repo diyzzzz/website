@@ -1,6 +1,6 @@
 ## Welcome to DIY Zzz
 
-### Community
+### Join Our Community
 
 * [Telegram](https://t.me/diyzzzzzz)
 * [Discord](https://discord.gg/sgD79r6qR7)
